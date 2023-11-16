@@ -1,1 +1,0 @@
-# amphipedia.github.io
